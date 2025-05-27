@@ -1,3 +1,3 @@
 __hii im leo!!__
 w2i, possible slow responses
-![Untitled281_20250527081943](https://github.com/user-attachments/assets/17890272-3dca-4af6-a101-e57a53d7865f)
+![Untitled281_20250527082512](https://github.com/user-attachments/assets/6e575bb7-c9eb-47d8-ba2b-4ae8ae919509)
